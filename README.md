@@ -1,6 +1,6 @@
 ## Hi there, I'm Sujayanand!
 
-🧠 Masters in Artificial Intelligence @ Boston University (2024 - 2025)<br />
+🧠 Masters in Artificial Intelligence @ Boston University (2024 - 2026)<br />
 💻 AI & Unamnned Systems Team Lead @ Lockheed Martin Global (2022 - 2024)<br />
 📃 Certified Artificial Intelligence Engineer from the United States Artificial Intelligence Institute (2024 - 2027)<br />
 
